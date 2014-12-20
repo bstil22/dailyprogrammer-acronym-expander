@@ -1,1 +1,1 @@
-Paired with Brady (@bstil22)
+Paired with Kevin (@gs-kl)
